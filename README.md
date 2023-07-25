@@ -1,0 +1,4 @@
+- 🐈‍⬛ Long Live Weldhappy!
+- 🐍 Applied Pöst Pythön
+- 🐢 Stop Killing me smallz!
+- 🕯️📎⌛💀☠️👻⏳⬛🕯️♥️💡🎁🐠⭐🪴◼️🧬🌃✨🧞‍♂️🔵👽🌎🧭⏰🧩🇺🇦☘️🐎🌹🍺
