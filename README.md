@@ -1,4 +1,5 @@
 - 🐈‍⬛ Long Live Weldhappy!
 - 🐍 Applied Pöst Pythön
 - 🐢 Stop Killing me smallz!
+- <a rel="me" href="https://fosstodon.org/@muse">Mastodon</a>
 - 🕯️📎⌛💀☠️👻⏳⬛🕯️♥️💡🎁🐠⭐🪴◼️🧬🌃✨🧞‍♂️🔵👽🌎🧭⏰🧩🇺🇦☘️🐎🌹🍺
